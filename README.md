@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dogukanstyles (Doğukan Yıldırım/Dogukan Yildirim)
-- 🌱 I'm from Türkiye(Turkey)
+- 🌱 I'm from 🇹🇷
 - 👀 Social on linktr.ee/dogukanyildirim
 - 📫 How to reach me?
 - My e-mail: thisdogukan@hotmail.com
